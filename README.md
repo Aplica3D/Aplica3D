@@ -1,0 +1,5 @@
+- 👋 Hola soy Arnie
+- 👀 Me interesan mucho las impresoras 3D para grandes formatos
+- 🌱 Actualmente son estudiante de Ing. Mecánica y Eléctrica
+- 💞️ Estoy buscando colaborar en ámbito de enseñanza en medicina.
+- Soy técnico Mecatrónico Industrial, especializado en automatización industrial.
